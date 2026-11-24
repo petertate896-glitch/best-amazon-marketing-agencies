@@ -10,7 +10,7 @@ An expert agency can analyse a brand’s advertising, and advise on how best to 
 ## 5 Best Amazon Marketing Agencies in 2027
 When comparing Amazon marketing agencies, sellers should consider their service offerings, marketplace experience, advertising expertise, and approach to brand growth.
 ### 1. AdOrbix
-[AdOrbix]([url](https://www.adorbix.com/)) specialises in Amazon related marketing and development areas such as pay-per-click, search engine optimisation and product listing and design. Brands can use these services to develop and refine various areas of their Amazon profile.
+[AdOrbix](https://www.adorbix.com/) specialises in Amazon related marketing and development areas such as pay-per-click, search engine optimisation and product listing and design. Brands can use these services to develop and refine various areas of their Amazon profile.
 ### 2. Tinuiti
 Tinuiti offer performance based digital marketing. With knowledge of marketplaces as well as retail media, it should also be assessed as an option to help brands develop and manage their marketing.
 ### 3. Amazon Growth Lab
